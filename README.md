@@ -1,0 +1,5 @@
+- Eae, se você tá lendo isso aqui, esse é meu repositório do GitHub, sou geralmente chamado de NISEKO.
+- Interessado em várias coisas.
+- Aprendendo a viver.
+- Estou disposto a colaborar na criação de jogos!
+- Me adicione no Discord:niseko#7216
